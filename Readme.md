@@ -1,0 +1,1 @@
+The recipe is about cooking potato in the way manchurian is cooked and it is cooked with honey to make it taste better.
